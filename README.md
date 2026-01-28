@@ -8,4 +8,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Software testing and development
 - 🤔 I’m looking for help with Software Development and Testing
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/meghana-kudingila)
-- ⚡ Fun fact: A Woman, always finding faults in software. 
+- ⚡ Fun fact: A woman loves to find. 
